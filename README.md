@@ -10,4 +10,4 @@
 
 本页面专为热爱日韩与中美字幕类AV资源的观众打造，整合热播高清片源与无码中字版本。内容涉及粗暴剧情、深夜专区及精品推荐，适配所有设备播放。所有资源每日同步更新，确保获取第一手的刺激内容，流畅无广告。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/doi20250708/doi18 ）</span>
